@@ -1,0 +1,2 @@
+# Luck
+Genuine and trusted
